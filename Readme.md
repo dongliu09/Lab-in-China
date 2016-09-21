@@ -10,3 +10,7 @@ We've lived in a period that dozens of choice for job come across to us in a who
 
 Date Aug. 15, 2016
 
+
+
+YOU ARE NO LONGER AT THE EDGE, DONG
+

@@ -14,3 +14,9 @@ Date Aug. 15, 2016
 
 YOU ARE NO LONGER AT THE EDGE, DONG
 
+Yeah, no longer at the edge. Since the way you have chosen, to be sure, learning how to code is great thing. Have the courage to change yourselves you need to grasp novel things and absorb them asap. Living aborad is tons of treasure you should. The people you meet. the personality you have encountered. should have some impact on youself. Now you choose to live in a brand new country, have the faith to hunt there and do whatever you want to do. Dont be afraid to change, baby.
+
+Viva La vida
+
+
+

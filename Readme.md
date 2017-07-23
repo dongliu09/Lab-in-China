@@ -20,3 +20,11 @@ Viva La vida
 
 
 
+Date July 23th, in Duluth MN
+
+Dong,
+
+Finally you have the opportunity to be abroad and continue your research career. That's a good thing. And since there's no suitable job opportunity at this time you should have the patience to settle down and try to solve some issues here and perpare to be further aims.
+
+
+
